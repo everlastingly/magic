@@ -1,0 +1,2 @@
+# magic
+nerver give up
